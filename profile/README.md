@@ -11,3 +11,4 @@
 
 - [#彩葉 酒奇彩葉　(超かぐや姫！) - ｶﾌﾟﾚｰｾﾞのイラスト](https://www.pixiv.net/artworks/142084310)
 - [#超かぐや姫! 噓月 - 春日ゆうのイラスト](https://www.pixiv.net/artworks/141856138)
+- [プロジェクトセカイ カラフルステージ！ feat. 初音ミク](https://pjsekai.sega.jp)
